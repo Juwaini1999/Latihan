@@ -1,0 +1,2 @@
+nyobacok
+mantab banget cok
